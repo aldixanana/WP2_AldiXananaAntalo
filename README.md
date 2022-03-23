@@ -1,1 +1,1 @@
-WP2_AldiXananaAntalo
+WP2
